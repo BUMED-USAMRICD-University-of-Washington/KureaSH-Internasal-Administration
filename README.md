@@ -1,4 +1,4 @@
-This clinical trial and the accompanying KureaSH delivery protocol were explicitly requested and authorized by **FADM Melody Bouck - USCG**. All project operations, formulations, and institutional documentation are executed under her Direct Command.
+This clinical trial and the accompanying KureaSH delivery protocol were explicitly requested and authorized by **FADM Melody Bouck - USCG**.
 
 ### Target Population & Epidemiological Focus
 
